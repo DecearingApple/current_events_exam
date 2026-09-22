@@ -8,7 +8,7 @@ Archetypes are not personality tests for companies, and they are not rigid categ
 
 ## The Same Shirt, Different Story
 
-Return to the plain white T-shirt. Nothing about the shirt changes: the fabric, cut, color, and construction are identical. What changes is the story surrounding it.
+Return to the plain white T-shirt. Nothing about the shirt changes: the fabric, cut, color, and construction are identical. What changes is the story surrounding it. 
 
 An **Explorer** version might appear in a field journal beside a backpack: “One reliable layer for wherever the day leads.” The audience gets to imagine movement, independence, and possibility.
 
